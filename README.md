@@ -17,3 +17,10 @@ Strategic Principle :
 Innovation Through Intelligence 
 Development Through Collaboration 
 Progress Through NI+AI 
+NI-AI Business Structure 《《《《《
+SM-ZMN>>EMEIGAACK
+A-Tehnology and Intelligence 
+B- Engineering and vehicle Des.
+C- Aerospace Development 
+D- Global Business development 
+E- NI_Personal services 
